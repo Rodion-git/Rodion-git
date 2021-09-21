@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Rodion-git
+- 👋 Hi, I’m Rodion
 - 📫 How to reach me rodionkhahush@gmail.com
